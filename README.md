@@ -18,4 +18,4 @@
 
 如果您對本隱私政策有任何疑問，您可以聯繫我們：
 
-- 通過電子郵件：clive@eurokool.com
+- 通過電子郵件：rarity-ozone.0z@icloud.com
